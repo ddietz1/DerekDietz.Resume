@@ -1,2 +1,0 @@
-# DerekDietz.Resume
- 
